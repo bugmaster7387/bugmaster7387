@@ -16,10 +16,10 @@
 ‎  
 ‎  
 ![image](https://github.com/user-attachments/assets/58133326-f694-4b94-a707-b236d4dca8f8)   ‎  ![image](https://github.com/user-attachments/assets/17e8f8ab-39e5-41f5-8676-797960eced75)
-‎  ‎ ‎ ‎ ‎  $\color{#687182}{ Chance }$ $\color{#687182}{ / }$ $\color{#687182}{ Mark }$ $\color{#363c45}{ 🎰 }$ $\color{#363c45}{ And }$ $\color{#363c45}{ more }$ $\color{#363c45}{ names }$
+‎  ‎ ‎ ‎ ‎  $\color{#687182}{ Chance }$ $\color{#687182}{ / }$ $\color{#687182}{ Griefer }$ $\color{#687182}{ / }$ $\color{#687182}{ Brad }$ $\color{#687182}{ 🎰 }$ $\color{#363c45}{ And }$ $\color{#363c45}{ more }$ $\color{#363c45}{ names }$
 
     
-$\color{#687182}{ 16 }$  ‎  $\color{#687182}{ He }$  $\color{#687182}{ / }$ $\color{#687182}{ It }$   ‎  $\color{#687182}{ 🎰 }$  ‎  $\color{#687182}{ Gay }$ $\color{#808ea6}{ • }$ $\color{#808ea6}{ Autistic?? }$ $\color{#808ea6}{ (probably) }$
+$\color{#687182}{ 17 }$  ‎  $\color{#687182}{ He }$  $\color{#687182}{ / }$ $\color{#687182}{ It }$   ‎  $\color{#687182}{ 🎰 }$  ‎  $\color{#687182}{ Gay }$ $\color{#808ea6}{ • }$ $\color{#808ea6}{ Autistic?? }$ $\color{#808ea6}{ (probably) }$
 
 $\color{#363c45}{ ADDICTED! }$ $\color{#363c45}{ n }$ $\color{#363c45}{ semiverbal }$ $\color{#5d6675}{ • }$ $\color{#5d6675}{ Fucking }$ $\color{#5d6675}{ loser }$ $\color{#5d6675}{ who }$ $\color{#5d6675}{ doesn't }$ $\color{#5d6675}{ sleep }$
 
@@ -27,4 +27,4 @@ $\color{#363c45}{ ADDICTED! }$ $\color{#363c45}{ n }$ $\color{#363c45}{ semiverb
 ‎  
 ‎  
 ‎  
-![image](https://github.com/user-attachments/assets/58133326-f694-4b94-a707-b236d4dca8f8) ‎  ‎   ‎    $\color{#363c45}{ BT }$ 🎰 $\color{#363c45}{ WAAPP }$ $\color{#363c45}{ • }$ $\color{#363c45}{ Roblox }$ $\color{#363c45}{ 🎰 }$ $\color{#687182}{ IZ }$ $\color{#687182}{ • }$ $\color{#687182}{ Kaloscope SMP }$ $\color{#363c45}{ 🎰 }$ $\color{#687182}{ Minecraft }$
+![image](https://github.com/user-attachments/assets/58133326-f694-4b94-a707-b236d4dca8f8) ‎  ‎   ‎    $\color{#363c45}{ BT }$ 🎰 $\color{#363c45}{ WAAPP }$ $\color{#363c45}{ • }$ $\color{#363c45}{ Forsaken }$ $\color{#363c45}{ 🎰 }$ $\color{#687182}{ SEWH }$ $\color{#687182}{ • }$ $\color{#687182}{ DoD }$ ‎  ‎   ‎    ![image](https://github.com/user-attachments/assets/58133326-f694-4b94-a707-b236d4dca8f8)
